@@ -5,6 +5,9 @@ Every Week These Guys Come Up with New Strains. Chek the out on [Telegram](teleg
 
 Exotic and Indica Flavours Availaible Everyday and Anytime.
 
+### Smoove Plugz
+![Image](https://www.google.co.in/imgres?imgurl=https%3A%2F%2Fwww.verywellmind.com%2Fthmb%2F2sogEr3gNemXNC2pzVyQTxQ1fgQ%3D%2F1280x853%2Ffilters%3Ano_upscale()%3Amax_bytes(150000)%3Astrip_icc()%2Fmarijuana-454601963-resized-569fd2345f9b58eba4ad583d.jpg&imgrefurl=https%3A%2F%2Fwww.verywellmind.com%2Ftypes-of-marijuana-22323&tbnid=vWdC2rxcRiIEwM&vet=12ahUKEwi9wevcg_L1AhVgEWMBHX5MCaIQMygAegUIARDbAQ..i&docid=RVrjJSIrfa74-M&w=1280&h=853&q=weed&client=safari&ved=2ahUKEwi9wevcg_L1AhVgEWMBHX5MCaIQMygAegUIARDbAQ) 
+
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
