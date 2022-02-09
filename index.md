@@ -1,8 +1,9 @@
-## Welcome to GitHub Pages
-header- "Shady Brook"
-You can use the [editor on GitHub](https://github.com/shadybrook/shadybrook.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+## Shady Brook
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Every Week These Guys Come Up with New Strains. Chek the out on [Telegram](telegram.com) so you can connect with them now!
+
+
+Exotic and Indica Flavours Availaible Everyday and Anytime.
 
 ### Markdown
 
