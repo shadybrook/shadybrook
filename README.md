@@ -1,2 +1,2 @@
-# shadybrook.github.io
-First try at creating a website
+# Shady Brook
+Your shady vendor
